@@ -1,2 +1,2 @@
 # myself
-Introduces Dylan Honoria
+Introduces Dylan Joseph Honoria as an IT upstart
